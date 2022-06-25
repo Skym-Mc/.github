@@ -1,3 +1,3 @@
 ## Hey 👋
 
-🙋‍♀️ Bienvenue sur l'organisation de SkymMC.
+🙋‍♀️ Bienvenue sur l'organisation de Skym-Mc.
