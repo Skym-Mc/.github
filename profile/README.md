@@ -1,5 +1,5 @@
 # Skym-Mc Organization
-![alt text](https://imgur.com/XQ5HF7z.jpg)
+<img src="https://imgur.com/XQ5HF7z.jpg" width="150">
 
 ## Hey 👋
 
